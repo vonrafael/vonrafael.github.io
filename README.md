@@ -18,11 +18,14 @@ MNIT Jaipur
   2. Coming Soon
 
 ## Favoritism
+
 **Likes**
   - Netflix Doc
   - CheeseCakes
   - Strategy Games
   - Geopolitics
+
+
 **Dislikes**
   - Tiktok Chhapris
   - Fake InstaModels
