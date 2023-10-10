@@ -31,6 +31,10 @@ MNIT Jaipur
   - Fake InstaModels
   - Hypocrites Extremist
 
+
+**Misc**
+  1. fwe
+  2. fw
   
 
   
